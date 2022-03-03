@@ -1,0 +1,2 @@
+# doge-blooket-hack
+hack
